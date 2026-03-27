@@ -2,5 +2,5 @@
 
 ## Hi there 👋
 
-## We are come to build and enhanced your projects
+## We are here to build and improve your project.
 
